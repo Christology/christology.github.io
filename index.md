@@ -1,1 +1,1 @@
-![Christ](/img/christology_logo.png)
+![Christ](/img/logo_round_no_text.png)
